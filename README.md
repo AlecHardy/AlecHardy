@@ -1,3 +1,2 @@
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31bymkkgbeib2ynm5tbof2nfm46y&cover_image=true&theme=novatorem&show_offline=false&background_color=000000&interchange=false&bar_color=189bcc&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
+![tumblr_0e190258c5d33b8af73b8b90d0ec0e63_47ea1295_1280](https://github.com/user-attachments/assets/a4f4aedc-210a-49fa-a6ed-4e859a17b976)
 
-  The sky is deep and dark and eternally high, Many people think that's where you go when you die
